@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Krokoold
+- 👀 I’m interested in anime 
+- 🌱 I’m currently learning Kazakhstan and Russian
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me sansaluer@gmail.com
